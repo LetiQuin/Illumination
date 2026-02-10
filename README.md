@@ -14,3 +14,6 @@ and positions.
 A new path is forged—
 not discovered,
 but illuminated.
+
+© Leticia Quintana. Licensed under CC BY 4.0. Attribution required.
+
